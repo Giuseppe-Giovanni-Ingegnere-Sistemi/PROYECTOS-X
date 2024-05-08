@@ -1,1 +1,1 @@
-Proyectos de video tutoriales para para practica profesional 
+Proyectos de video tutoriales para practica profesional 
